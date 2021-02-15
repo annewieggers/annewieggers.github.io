@@ -1,2 +1,0 @@
-# annewieggers.github.io
-Webpage
